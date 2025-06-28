@@ -1,1 +1,1 @@
-# Psychotic-Theory.github.io
+# P1xel1ze.github.io
